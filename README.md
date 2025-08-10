@@ -1,1 +1,1 @@
-# `punyik.xyz`
+`© 2025 ttp`
